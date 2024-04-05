@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nyinyi2030
+- 👋 Hi, I’m nyinyizin.
 - 👀 I’m interested in programmings.
 - 🌱 I’m currently learning HTML CSS C# JavaScript.
 - 💞️ I’m looking to collaborate with others.
