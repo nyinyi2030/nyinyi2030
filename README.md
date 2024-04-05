@@ -2,7 +2,7 @@
 - 👀 I’m interested in programmings.
 - 🌱 I’m currently learning HTML CSS C# JavaScript.
 - 💞️ I’m looking to collaborate with others.
-- 📫 How to reach me ..viber ph.09254094164
+- 📫 How to reach me ..viber ph.09254094164 nyinyizin951@gmail.com
 - 😄 Pronouns: ...NyiNyi
 - ⚡ Fun fact: ...
 
